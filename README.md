@@ -1,0 +1,4 @@
+University-of-Nigeria
+=====================
+
+Through an engaging and inspiring gathering of many Nigerian leaders, with the principal motivation of Dr. Nnamdi Azikiwe, the erstwhile Premier of Eastern Nigeria, there came the endorsement of law which was passed in 1955 for the institution of a University in the Eastern Region of Nigeria. By the 7th of October, 1960, the University of Nigeria was officially opened.  Just after the legal endorsement in 1955, a request was sent to the United States of America and the United Kingdom  to commission guides and counsellors to aid in the design and development of the proposed University, detailing the tangible and academic aspects. The initial move was one of the groundbreaking efforts made by the Eastern Nigeria Government to complete its commitment.
